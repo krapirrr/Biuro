@@ -1,0 +1,1 @@
+# strona-kacper_daraz
